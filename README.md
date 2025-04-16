@@ -16,7 +16,7 @@ Soy un entusiasta de la tecnología con experiencia en entornos Microsoft y cono
 ## 📫 Contacto
 
 - Correo: [chuchoav4@gmail.com](mailto:chuchoav4@gmail.com)
-- https://www.linkedin.com/in/jes%C3%BAs-alejandro-%C3%A1lvarez-vel%C3%A1zquez-28820a2aa/
+- www.linkedin.com/in/jesus-alvarez-28820a2aa
 - 
 
 ---
